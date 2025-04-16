@@ -1,3 +1,3 @@
-VIDEO LINE:
+VIDEO LINK:
 
-https://photos.google.com/photo/AF1QipPld8-Hm0L1mKRgvjoGPMm9yNvNYxG2cuNxUMYV
+https://photos.app.goo.gl/fDDMFrSSdAs6Pkib6
